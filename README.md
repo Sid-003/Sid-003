@@ -1,1 +1,1 @@
-<img src="https://images.emojiterra.com/twitter/v13.0/128px/1f974.png" align="center">
+<img src="https://media.discordapp.net/attachments/723140148224589844/765443495384055838/paypal.gif" align="center">
